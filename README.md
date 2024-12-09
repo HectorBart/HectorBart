@@ -2,3 +2,4 @@
 - 👀 I’m interested in everything
 - 🌱 I’m currently learning too much
 - 📫 You can reach me through my email: me@hectorro.be
+- You can read my blog at [hectorro.be](hectorro.be)!
