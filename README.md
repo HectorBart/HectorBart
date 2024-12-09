@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @HectorBart
 - 👀 I’m interested in everything
 - 🌱 I’m currently learning too much
-- 📫 You can reach me through my email: me@hectorrobe.co.uk
+- 📫 You can reach me through my email: me@hectorro.be
